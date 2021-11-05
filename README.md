@@ -1,5 +1,9 @@
 <SNKRX AR>
 Team members: <Iurea Marius> <Hutu Tudor> <>
+  
+  
+ https://docs.google.com/document/d/1K_uxAljzB32IyEfWBHOGyH2bX1s7vaGAZ8iDPmYBrcc/edit
+  
 
 Similar products & Relevant Links(>=3)
 Name SNKRX
